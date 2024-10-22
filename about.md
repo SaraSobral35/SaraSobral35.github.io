@@ -20,4 +20,4 @@ My commitment. Focus on the goal I set for myself of achieving better conditions
 
 ### Contact
 
-If you can give me this oportunity you can see my linkedin or send an email. You can also phone me!
+If you can give me this oportunity you can see my linkedin (https://www.linkedin.com/in/sara-sobral-414972333/) or send an email (sarasobral019@gmail.com). You can also phone me!
