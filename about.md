@@ -7,7 +7,7 @@ title: About
 
 ### Why
 
-I like my profession, but recently a miss new challenges.
+I like my profession, but recently I miss new challenges.
 I want to evolve, creating better conditions for my life, and I feel like I will enjoy this experience.
 
 ### How
